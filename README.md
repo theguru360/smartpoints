@@ -1,0 +1,2 @@
+# smartpoints
+SP GURU VR
